@@ -1,1 +1,3 @@
 # pf-quantitative-finance
+
+<!-- FIRMA: pRqTseH_YiH-MNipYHcwomaXIoHbbRauU-MbyPWtaRG-PXgNZarv7AqvjJCtFjMdTH152nuRyI1pbY0G-uShlN0mIesUBmJgSehiVgvb6Hte -->
